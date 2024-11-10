@@ -5,7 +5,7 @@ Hi hi Hello! we're the WhitehouseKits Collective ^_^ !!!!
 PLEASEEE Check our Rentry out!! load of good info!!!!
 
 General:
-**13** bodily, **INFP-T** . Taurus : **May 13** , Spiritual . **Nonreligious** , **PTSD - Anxiety - questioning ADHD & Autism** . We love yapping about our special interests ^O^ (MCYT Lore, or any lore in our fandoms LMAO) . **Fatherfigure of 3 online children!!**
+**13** bodily, **INFP-T** . Taurus : **May 13** , Spiritual . **Nonreligious** , **WE HAVE TICS!!!** . We love yapping about our special interests ^O^ (MCYT Lore, or any lore in our fandoms LMAO) . **Fatherfigure of 3 online children!!**
 
 ...**dont first judge us.**
 
