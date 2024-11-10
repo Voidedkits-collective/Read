@@ -1,5 +1,6 @@
 **. . . started up . ! !**
-![](https://64.media.tumblr.com/355c14a8da165343351f6763886b5641/8c7884d14523f07c-06/s1280x1920/2c1f91710daa5cc8d7d55c5eac1e8e79e90cab05.pnj)
+![](https://i.postimg.cc/6pPzDjPS/6-F644-F50-7811-412-F-B295-173-D103-C29-C2.png)
+
 Hi hi Hello! we're the WhitehouseKits Collective ^_^ !!!!
 PLEASEEE Check our Rentry out!! load of good info!!!!
 
@@ -8,7 +9,7 @@ General:
 
 ...**dont first judge us.**
 
-![](https://64.media.tumblr.com/195f54dd2ffe8e63db9a214251d8f193/8c7884d14523f07c-7d/s1280x1920/d82d86cfc8991a76818d8c9bd8fd8974bf6bd9e9.pnj)
+![](https://i.postimg.cc/YSDMrrk8/C451-A782-C6-AD-4115-9-C77-6-E35-CBF8518-A.png)
 
 We are a pretty nice and chill dude!, if you see someone problematic and we are with them please dont first judge..if I am with a problematic person I may not know it!! please tell us if we are wrong to hang out with them!! (We have major PTSD, Trauma, etc from Problematic people Online. Keep topics such as: S/A , S/H away!!)
 Right now we are GRIEFING so PLEASEEE be gentle with us!!!
@@ -18,4 +19,4 @@ Right now we are GRIEFING so PLEASEEE be gentle with us!!!
 
 our github is in the works! please be patient >_<!?
 
-![](https://64.media.tumblr.com/4a9a26dd6a88d07b1785bac4f6ba9328/8c7884d14523f07c-f4/s1280x1920/360a3de599ba34b8da2b387bcf9f3b940876a092.pnj)
+![](https://i.postimg.cc/Bv1Ns59v/BE693-F0-C-9412-4042-8543-D50-D00-F77-DBB.png)
