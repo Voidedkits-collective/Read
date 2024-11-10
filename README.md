@@ -1,7 +1,7 @@
 **. . . started up . ! !**
 ![](https://i.postimg.cc/6pPzDjPS/6-F644-F50-7811-412-F-B295-173-D103-C29-C2.png)
 
-Hi hi Hello! we're the WhitehouseKits Collective ^_^ !!!!
+Hi hi Hello! we're the WhitehouseKits Collective ^_^ !!!
 PLEASEEE Check our Rentry out!! load of good info!!!!
 
 General:
